@@ -1,10 +1,4 @@
-/**
- *Submitted for verification at BscScan.com on 2023-11-17
-*/
 
-/**
- *Submitted for verification at BscScan.com on 2023-11-14
-*/
 
 /**
 
